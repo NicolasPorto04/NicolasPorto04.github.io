@@ -1,3 +1,3 @@
 # NicolasPorto04.github.io
 
-Bruh we doin this fr fr
+One must imagine sisyphus happy - Albert Camus
